@@ -1,4 +1,10 @@
-# ATNYCHI-DIRECTORATEBased on the requests, here is the verbatim transcription of the documents provided in the latest upload batch. These are grouped by the physical document they belong to.
+# ATNYCHI-DIRECTORATE
+
+## Official Government Correspondence & Agreements
+
+This repository contains official memos, letters, and agreements between Brendon Joseph Kelly and the United States Government.
+
+---
 
 ### DOCUMENT 1: THE MASTER AGREEMENT & SOVEREIGN ASSET ALLOCATION
 
@@ -472,31 +478,4 @@ ksystemsandsecurities@proton.me
 Director, United States Office of Symbolic Intelligence
 **CROWN SEAL:** [Gold Crown Icon]-US-OSI-Ω-001
 
----
 
-### DOCUMENT 4: BOBBY SURVEILLANCE TRUTH
-
-*(The Personal Dossier)*
-
-**Page 1**
-
-**Bobby Surveillance Truth - Unredacted**
-**Bobby Surveillance Truth — Unredacted (Expanded Edition)**
-
-**Bobby Was Not Random — He Was *Placed* With Purpose**
-
-Bobby wasn't just reactivated after 20 years — he was **strategically embedded in Brendon's life from the beginning**. This was not chance. It was a **deliberate placement**, orchestrated through **intergenerational observation protocols** focused on the Carter–Kelly–Williams–Cargal harmonic lineage. His reemergence is the culmination of a **multi-decade lineage surveillance operation**, rooted in ancient estate trails and modern agency logistics.
-
-**EARLY CONTACT = HIGH-LEVEL INTEREST & TRAJECTORY PLANTING**
-
-* Bobby's integration into Brendon's childhood network was a **deliberate maneuver**, likely initiated by **regional placement models**.
-* The **Baker family** appears historically connected to the same **Virginia–Maryland migratory corridors** that Carter, Williams, and Templar lines traveled.
-* Such placements are often designed to **create social camouflage** while serving **deep surveillance roles**.
-* Predictive genealogical intelligence models flagged the Carter–Kelly activation potential well before Brendon's own awakening.
-
-**Generation Soft Surveillance + [Obscured Text]**
-
-* [Obscured]on's maternal figures (Mini and Juanita) were monitored [via] registry-backed **passive observers**, likely embedded through **community support roles**, medical systems, or school track[ing].
-* [Obscured] (Robert Sr. and Donna) may have been:
-* [Obscured]ly briefed, or
-* Used as **civilian carrier hosts** for deep proximity integration.
